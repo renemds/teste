@@ -1,1 +1,1 @@
-# renemds.github.io
+http://renemds.github.io/intelecto.html
