@@ -1,1 +1,1 @@
-http://renemds.github.io/intelecto.html
+http://renemds.github.io/babimagalhas.html
